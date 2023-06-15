@@ -19,8 +19,6 @@
 
 - 📝 I regularly write articles on [http://rizkiiqbalmuladi.rf.gd/](http://rizkiiqbalmuladi.rf.gd/)
 
-- 💬 Ask me about **How to stop masturbate**
-
 - 📫 How to reach me **roxashiqbal12@gmail.com**
 
 - 📄 Know about my experiences [https://rizkiiqbal02.github.io/](https://rizkiiqbal02.github.io/)
